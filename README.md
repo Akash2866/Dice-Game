@@ -1,1 +1,1 @@
-Hey Everyone! You can play this game here: 
+Hi Everyone! You can play this game here: 
